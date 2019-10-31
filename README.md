@@ -1,4 +1,5 @@
-# Joonwoo Choi 33505 38th Ave S Federal Way, WA 98001 / 253-334-3586 / joon3703@gmail.com
+# Joonwoo Choi 
+## 33505 38th Ave S Federal Way, WA 98001 / 253-334-3586 / joon3703@gmail.com
 
 			               
 **Skill Set:**
